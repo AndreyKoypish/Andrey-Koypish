@@ -1,2 +1,0 @@
-# Andrey-Koypish
-study
